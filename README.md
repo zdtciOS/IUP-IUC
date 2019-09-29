@@ -2,7 +2,8 @@
 
 ## Privacy Policy 
 
- We knows the importance of personal information to you and will try to protect your personal information security. Our bank is committed to maintaining your trust in our bank and abiding by the following principles to protect your personal information: the principle of consistency of powers and responsibilities, the principle of clear purpose, the principle of choice and consent, the principle of necessity, the principle of ensuring security, the principle of openness and transparency, etc. At the same time, we promise to take corresponding security measures to protect your personal information according to law.
+ We knows the importance of personal information to you and will try to protect your personal information security. T
+he principle of consistency of powers and responsibilities, the principle of clear purpose, the principle of choice and consent, the principle of necessity, the principle of ensuring security, the principle of openness and transparency, etc. At the same time, we promise to take corresponding security measures to protect your personal information according to law.
 
 This Privacy Policy will help you understand the following:
 
