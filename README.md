@@ -1,4 +1,4 @@
-# IUP-IUC
+# IUP
 
 ## Privacy Policy 
 
